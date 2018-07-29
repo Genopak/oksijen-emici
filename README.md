@@ -8,3 +8,5 @@ Adres : Uyanış Mahallesi, Gülbaba Cadddesi, No: 158/A Keçiören/ANKARA
 Telefon: 0 505 655 37 92
 
 <a href="http://www.genopak.net/oksijen-emici/"><img src="https://i0.wp.com/www.genopak.net/wp-content/uploads/2018/07/oksijen-emici-b1.jpg?resize=1100%2C150"></a>
+
+<a href="http://www.genopak.net/oksijen-tutucu-ambalaj-malzemeleri/"> Oksijen Tutucu Ambalaj Malzemeleri </a>
